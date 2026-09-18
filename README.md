@@ -29,3 +29,7 @@ Você achou isso útil?
 <img width="196" height="183" alt="download (5)" src="https://github.com/user-attachments/assets/792b6fbe-3c82-45c8-9731-55d7bd3a59a5" />
 <img width="554" height="554" alt="images (34)" src="https://github.com/user-attachments/assets/7b6fda68-1ba1-4581-a272-ad69d2004a63" />
 <img width="224" height="224" alt="images (5)" src="https://github.com/user-attachments/assets/686d5fe6-93c4-43e3-96a5-8e2640379721" />
+1 bi+
+downloads
+intent://play.google.com/store/apps/details?id=com.roblox.client&pcampaignid=web_redirect#Intent;scheme=https;action=android.intent.action.VIEW;package=com.android.vending;S.browser_fallback_url=https://play.google.com/store/apps/details?id=com.roblox.client&redirect=0;end
+# Roblox-Novo
