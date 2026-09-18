@@ -26,3 +26,6 @@ Adham Cruz
 O Roblox tem muita variedade de jogos, apesar genéricos (simuladores repetitivos e pay to win), também tem muitos que são incríveis em questão de jogabilidade, detalhes e criatividade. Alguns marcaram a minha infância e me divertiram muito. Mas o maior problema que me faz não gostar da plataforma em si é que ela vem piorando bastante nos últimos meses, as atualizações dificultaram a interação com seus amigos e pioraram a segurança e privacidade, mas os jogos (em geral) ainda são bons.
 Essa avaliação foi marcada como útil por 57 pessoas
 Você achou isso útil?
+<img width="196" height="183" alt="download (5)" src="https://github.com/user-attachments/assets/792b6fbe-3c82-45c8-9731-55d7bd3a59a5" />
+<img width="554" height="554" alt="images (34)" src="https://github.com/user-attachments/assets/7b6fda68-1ba1-4581-a272-ad69d2004a63" />
+<img width="224" height="224" alt="images (5)" src="https://github.com/user-attachments/assets/686d5fe6-93c4-43e3-96a5-8e2640379721" />
